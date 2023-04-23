@@ -1,0 +1,2 @@
+# KofunPhotos26Kyoto_OtokuniKofungun
+乙訓古墳群
